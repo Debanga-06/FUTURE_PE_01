@@ -48,7 +48,7 @@ Upon completion of the program, I will receive:
 
 Connect with me for collaboration or opportunities:
 
-- **LinkedIn**: [linkedin.com/in/debangaguria](https://linkedin.com/in/debangaguria)  
+- **LinkedIn**: [https://www.linkedin.com/in/debanga-guria]
 - **Email**: [debanga078@gmail.com]  
 - **Organization**: [Future Interns](https://linkedin.com/future-interns)
 
